@@ -1,4 +1,4 @@
-# Colors of Motion
+# The Colors of Motion
 
 https://www.thecolorsofmotion.com/
 
